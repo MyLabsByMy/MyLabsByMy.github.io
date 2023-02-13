@@ -1,1 +1,1 @@
-# MyLabsByMy.github.io
+# mylabsbymy.github.io
